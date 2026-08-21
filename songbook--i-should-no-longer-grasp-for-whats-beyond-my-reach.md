@@ -1,0 +1,58 @@
+# i should no longer (grasp) for what’s beyond (my reach)
+
+SONG:
+
+i should no longer (grasp) for what’s beyond (my reach)
+
+shy, caught (in my own mind)
+i missed my moment with her, the stars (misaligned)
+an indian queen, her beauty like (a dream)
+but now she’s gone, just a (faded gleam)
+my desire was a mirage—(i leave it behind) i try to forget
+i should no longer (grasp) for what’s beyond (my reach)
+the ache of what could have been (it fades)
+but the thought of her, it still (invades)
+i open my hands, let the (longing drift) away
+but it clings like fog, won’t (fade today)
+i wanted her, but now it’s whispers (in the wind)
+i release the weight of (what could have been)
+like a river, i flow, leaving it (all behind)
+searching for peace in the quiet (of my mind)
+my desire was a mirage—(i leave it behind) i try to forget
+i should no longer (grasp) for what’s beyond (my reach)
+the path ahead clears as i (release control)
+no longer bound by what once (filled my soul)
+i once thought desire (made me whole)
+but now i know it’s what (chained my soul)
+i breathe out, with the breath (i let it go)
+finding the balance (in the ebb and flow)
+no more reaching for what’s (already gone)
+i stand steady, (moving on)
+my desire was a mirage—(i leave it behind) i try to forget
+i should no longer (grasp) for what’s beyond (my reach)
+the horizon is wide, free from longing’s (grip)
+i let go, i loosen the hold, and (slowly slip)
+the things i chased now feel (so far)
+like a distant echo, a (fallen star)
+desire was a mirage (in the dust)
+now i walk away, rebuild my (trust)
+letting go isn’t loss, it’s (quiet liberation)
+i unchain my heart from (false temptation)
+my desire was a mirage—(i leave it behind) i try to forget
+i should no longer (grasp) for what’s beyond (my reach)
+i stand in my own light, (no longer chasing)
+finding peace in the stillness (i’m embracing)
+moving on ain’t defeat, it’s strength (regained)
+the ache of desire fades, the pain (refrained)
+i let go of the dream, the (weight lifts)
+what i once wanted, now just a (drift)
+the fire dims, but i find a (gentler warmth)
+no longer reaching for what wasn’t meant (to be reborn)
+my desire was a mirage—(i leave it behind) i try to forget
+i should no longer (grasp) for what’s beyond (my reach)
+i find my freedom in the (letting go)
+what i release makes space for the real (to grow)
+desire trickles away, like (water through my hands)
+what i thought i needed was never mine (to understand)
+i walk into the vastness (of what is)
+no longer bound by the want, (i’m free in this)

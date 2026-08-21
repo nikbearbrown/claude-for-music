@@ -1,0 +1,486 @@
+# I came downstairs, boots heavy on the floor,
+
+---
+
+## 1. Plain Lyrics (DistroKid)
+
+And there you were, all gussied
+Up on the couch once more
+Surrounded by fellas, laughing by your side
+I stood there gobsmacked, trying to
+Swallow my pride
+Your eyes met mine, just for
+A fleeting while
+And in that moment, you lit
+Up with a smile
+
+You smiled, all gussied up, knowing your power
+In the blink of an eye,
+You bloomed like a wildflower
+Just a glance, and my world
+Turned upside down
+A country boy, lost in your
+Beauty, about to drown
+You knew you had me, plain as day
+And with a wink, you took
+My breath away
+
+You sat there on that couch,
+Surrounded by them guys
+I couldn’t look away, you were
+Brighter than the skies
+I tried to say “Hi,” but
+My voice didn’t show
+So I just tipped my hat,
+Pretending not to know
+Your laughter echoed, and they soaked it in
+While I stood on the sidelines,
+
+Wishing I could win
+
+You smiled, all gussied up, knowing your power
+In the blink of an eye,
+You bloomed like a wildflower
+Just a glance, and my world
+Turned upside down
+A country boy, lost in your
+Beauty, about to drown
+You knew you had me, plain as day
+And with a wink, you took
+My breath away
+
+I watched from afar, boots stuck
+To the floor
+Wishing I was the one you
+Were smiling for
+But you were caught in the
+Crowd, they all had your ear
+While I stood there frozen, swallowed by fear
+Every whisper I had felt like a scream
+But I was left behind in
+The shadows of the dream
+
+You smiled, all gussied up, knowing your power
+In the blink of an eye,
+You bloomed like a wildflower
+Just a glance, and my world
+Turned upside down
+A country boy, lost in your
+Beauty, about to drown
+You knew you had me, plain as day
+And with a wink, you took
+My breath away
+
+I came downstairs, a man out of time
+Watching as you shined, knowing you weren't mine
+Even though we shared just a
+Glance and a sigh
+You’ll always be the one, the
+Reason I try
+
+You smiled, all gussied up, knowing your power
+In the blink of an eye,
+You bloomed like a wildflower
+Just a glance, and my world
+Turned upside down
+A country boy, lost in your
+Beauty, about to drown
+You knew you had me, plain as day
+And with a wink, you took
+My breath away
+
+With a flip of your hair
+And a wave of your hand
+You left me standing, too shy
+To make a stand
+All gussied up, you stole the show
+And I just stood there, letting you go
+All Gussied Up
+
+And there you were, all gussied
+Up on the couch once more
+Surrounded by guys, close by your side
+I stood there gobsmacked, trying to
+Swallow my pride
+Your eyes met mine, just for
+A fleeting while
+And in that moment, you lit
+Up with a smile
+
+You smiled, all gussied up, knowing your power
+In the blink of an eye,
+You bloomed like a wildflower
+Just a glance, and my world
+Turned upside down
+A country boy, lost in your
+Beauty, about to drown
+You knew you had me, plain as day
+And with a wink, you took
+My breath away
+
+You sat there on that couch,
+Surrounded by them guys
+I couldn’t look away, you were
+Brighter than the skies
+I tried to say “Hi,” but
+My voice didn’t show
+So I just whispered, pretending not to know
+Your laughter echoed, and they soaked it in
+While I stood on the sidelines,
+Wishing I could win
+
+---
+
+## 2. Meta Tags Version
+
+[Intro] [Soft Intro] [Vulnerable Vocals] [Ambient Reverb] [Natural Ambience]
+Oooooo mmmmmm ahhhhh
+Do do do mmmmmm
+
+[Verse] [Storytelling Lyrics] [Chest Voice] [Stripped Back] [Finger Picking] [Folk Strum] [Playful Energy] [Acoustic Guitar] [String Section]
+And there you were, all gussied
+Up on the couch once more
+Surrounded by fellas, laughing by your side
+I stood there gobsmacked, trying to
+Swallow my pride
+Your eyes met mine, just for
+A fleeting while
+And in that moment, you lit
+Up with a smile
+
+[Verse] [Storytelling Lyrics] [Chest Voice] [Stripped Back] [Finger Picking] [Folk Strum] [Dreamy Texture] [Acoustic Guitar] [String Section]
+You smiled, all gussied up, knowing your power
+In the blink of an eye,
+You bloomed like a wildflower
+Just a glance, and my world
+Turned upside down
+A country boy, lost in your
+Beauty, about to drown
+You knew you had me, plain as day
+And with a wink, you took
+
+My breath away
+
+[Verse] [Storytelling Lyrics] [Chest Voice] [Stripped Back] [Finger Picking] [Folk Strum] [Cinematic Atmosphere] [Acoustic Guitar] [String Section]
+You sat there on that couch,
+Surrounded by them guys
+I couldn’t look away, you were
+Brighter than the skies
+I tried to say “Hi,” but
+My voice didn’t show
+So I just tipped my hat,
+Pretending not to know
+Your laughter echoed, and they soaked it in
+
+While I stood on the sidelines,
+
+[Verse] [Storytelling Lyrics] [Chest Voice] [Stripped Back] [Finger Picking] [Folk Strum] [Tense Underscore] [Acoustic Guitar] [String Section]
+Wishing I could win
+
+[Verse] [Storytelling Lyrics] [Chest Voice] [Stripped Back] [Finger Picking] [Folk Strum] [Pulsing Rhythm] [Acoustic Guitar] [String Section]
+You smiled, all gussied up, knowing your power
+In the blink of an eye,
+You bloomed like a wildflower
+Just a glance, and my world
+Turned upside down
+A country boy, lost in your
+Beauty, about to drown
+You knew you had me, plain as day
+And with a wink, you took
+
+My breath away
+
+[Verse] [Storytelling Lyrics] [Chest Voice] [Stripped Back] [Finger Picking] [Folk Strum] [Playful Energy] [Acoustic Guitar] [String Section]
+I watched from afar, boots stuck
+To the floor
+Wishing I was the one you
+Were smiling for
+But you were caught in the
+Crowd, they all had your ear
+While I stood there frozen, swallowed by fear
+Every whisper I had felt like a scream
+But I was left behind in
+
+The shadows of the dream
+
+[Verse] [Storytelling Lyrics] [Chest Voice] [Stripped Back] [Finger Picking] [Folk Strum] [Dreamy Texture] [Acoustic Guitar] [String Section]
+You smiled, all gussied up, knowing your power
+In the blink of an eye,
+You bloomed like a wildflower
+Just a glance, and my world
+Turned upside down
+A country boy, lost in your
+Beauty, about to drown
+You knew you had me, plain as day
+And with a wink, you took
+
+My breath away
+
+[Verse] [Storytelling Lyrics] [Chest Voice] [Stripped Back] [Finger Picking] [Folk Strum] [Cinematic Atmosphere] [Acoustic Guitar] [String Section]
+I came downstairs, a man out of time
+Watching as you shined, knowing you weren't mine
+Even though we shared just a
+Glance and a sigh
+You’ll always be the one, the
+Reason I try
+
+[Verse] [Storytelling Lyrics] [Chest Voice] [Stripped Back] [Finger Picking] [Folk Strum] [Tense Underscore] [Acoustic Guitar] [String Section]
+You smiled, all gussied up, knowing your power
+In the blink of an eye,
+You bloomed like a wildflower
+Just a glance, and my world
+Turned upside down
+A country boy, lost in your
+Beauty, about to drown
+You knew you had me, plain as day
+And with a wink, you took
+
+My breath away
+
+[Verse] [Storytelling Lyrics] [Chest Voice] [Stripped Back] [Finger Picking] [Folk Strum] [Pulsing Rhythm] [Acoustic Guitar] [String Section]
+With a flip of your hair
+And a wave of your hand
+You left me standing, too shy
+To make a stand
+All gussied up, you stole the show
+And I just stood there, letting you go
+All Gussied Up
+
+[Bridge] [Emotional Bridge] [Textural Shift] [Emotional Swell] [Melismatic Runs] [Folk Strum] [Playful Energy] [Acoustic Guitar] [String Section]
+And there you were, all gussied
+Up on the couch once more
+Surrounded by guys, close by your side
+I stood there gobsmacked, trying to
+Swallow my pride
+Your eyes met mine, just for
+A fleeting while
+And in that moment, you lit
+Up with a smile
+
+[Bridge] [Emotional Bridge] [Textural Shift] [Emotional Swell] [Melismatic Runs] [Folk Strum] [Dreamy Texture] [Acoustic Guitar] [String Section]
+You smiled, all gussied up, knowing your power
+In the blink of an eye,
+You bloomed like a wildflower
+Just a glance, and my world
+Turned upside down
+A country boy, lost in your
+Beauty, about to drown
+You knew you had me, plain as day
+And with a wink, you took
+
+My breath away
+
+[Outro] [Powerful Outro] [Fade Out] [Decrescendo] [Ambient Reverb] [Folk Strum] [Cinematic Atmosphere] [Acoustic Guitar] [String Section] [Natural Ambience]
+You sat there on that couch,
+Surrounded by them guys
+I couldn’t look away, you were
+Brighter than the skies
+I tried to say “Hi,” but
+My voice didn’t show
+So I just whispered, pretending not to know
+Your laughter echoed, and they soaked it in
+While I stood on the sidelines,
+
+Wishing I could win
+
+---
+
+## 3. Meta Tags + 15% Respell Version
+
+[Intro] [Soft Intro] [Vulnerable Vocals] [Ambient Reverb] [Natural Ambience]
+Oooooo mmmmmm ahhhhh
+Do do do mmmmmm
+
+[Verse] [Storytelling Lyrics] [Chest Voice] [Stripped Back] [Finger Picking] [Folk Strum] [Playful Energy] [Acoustic Guitar] [String Section]
+And there you were, all gussied
+Up on the couch once more
+Surrounded by fellas, laughing by your side
+I stood there gobsmacked, TRY-ing to
+Swallow my pride
+Your eyes met mine, just for
+A fleeting while
+And in that moment, you lit
+Up with a smile
+
+[Verse] [Storytelling Lyrics] [Chest Voice] [Stripped Back] [Finger Picking] [Folk Strum] [Dreamy Texture] [Acoustic Guitar] [String Section]
+You smiled, all gussied up, KNOW-ing your power
+In the blink of an eye,
+You bloomed like a wildflower
+Just a glance, and my world
+Turned upside down
+A country boy, lost in your
+Beauty, about to drown
+You knew you had me, plain as day
+And with a wink, you took
+
+My breath away
+
+[Verse] [Storytelling Lyrics] [Chest Voice] [Stripped Back] [Finger Picking] [Folk Strum] [Cinematic Atmosphere] [Acoustic Guitar] [String Section]
+You sat there on that couch,
+Surrounded by them guys
+I couldn’t look away, you were
+Brighter than the skies
+I tried to say “Hi,” but
+My VOYSS didn’t show
+So I just tipped my hat,
+Pretending not to know
+Your LAF-ter echoed, and they soaked it in
+
+While I stood on the sidelines,
+
+[Verse] [Storytelling Lyrics] [Chest Voice] [Stripped Back] [Finger Picking] [Folk Strum] [Tense Underscore] [Acoustic Guitar] [String Section]
+Wishing I could win
+
+[Verse] [Storytelling Lyrics] [Chest Voice] [Stripped Back] [Finger Picking] [Folk Strum] [Pulsing Rhythm] [Acoustic Guitar] [String Section]
+You smiled, all gussied up, KNOW-ing your power
+In the blink of an eye,
+You bloomed like a wildflower
+Just a glance, and my world
+Turned upside down
+A country boy, lost in your
+Beauty, about to drown
+You knew you had me, plain as day
+And with a wink, you took
+
+My breath away
+
+[Verse] [Storytelling Lyrics] [Chest Voice] [Stripped Back] [Finger Picking] [Folk Strum] [Playful Energy] [Acoustic Guitar] [String Section]
+I watched from afar, boots stuck
+To the floor
+WISH-ing I was the one you
+Were smiling for
+But you were KAWT in the
+Crowd, they all had your ear
+While I stood there frozen, swallowed by fear
+Every whisper I had felt like a scream
+But I was left bee-HYND in
+
+The shadows of the DREEM
+
+[Verse] [Storytelling Lyrics] [Chest Voice] [Stripped Back] [Finger Picking] [Folk Strum] [Dreamy Texture] [Acoustic Guitar] [String Section]
+You smiled, all gussied up, knowing your power
+In the blink of an eye,
+You bloomed like a wildflower
+Just a glance, and my world
+Turned upside down
+A KUN-tree boy, lost in your
+Beauty, about to drown
+You knew you had me, plain as day
+And with a wink, you took
+
+My breath away
+
+[Verse] [Storytelling Lyrics] [Chest Voice] [Stripped Back] [Finger Picking] [Folk Strum] [Cinematic Atmosphere] [Acoustic Guitar] [String Section]
+I came downstairs, a man out of time
+Watching as you shined, KNOW-ing you weren't mine
+Even though we shared just a
+Glance and a sigh
+You’ll always be the one, the
+Reason I try
+
+[Verse] [Storytelling Lyrics] [Chest Voice] [Stripped Back] [Finger Picking] [Folk Strum] [Tense Underscore] [Acoustic Guitar] [String Section]
+You smiled, all gussied up, KNOW-ing your power
+In the blink of an eye,
+You bloomed like a wildflower
+Just a glance, and my world
+Turned upside down
+A country boy, lost in your
+Beauty, about to drown
+You knew you had me, plain as day
+And with a wink, you took
+
+My breath away
+
+[Verse] [Storytelling Lyrics] [Chest Voice] [Stripped Back] [Finger Picking] [Folk Strum] [Pulsing Rhythm] [Acoustic Guitar] [String Section]
+With a flip of your hair
+And a wave of your hand
+You left me STAND-ing, too shy
+To make a stand
+All gussied up, you stole the show
+And I just stood there, letting you go
+All Gussied Up
+
+[Bridge] [Emotional Bridge] [Textural Shift] [Emotional Swell] [Melismatic Runs] [Folk Strum] [Playful Energy] [Acoustic Guitar] [String Section]
+And there you were, all gussied
+Up on the couch once more
+Surrounded by guys, close by your side
+I stood there gobsmacked, TRY-ing to
+Swallow my pride
+Your eyes met mine, just for
+A fleeting while
+And in that moment, you lit
+Up with a smile
+
+[Bridge] [Emotional Bridge] [Textural Shift] [Emotional Swell] [Melismatic Runs] [Folk Strum] [Dreamy Texture] [Acoustic Guitar] [String Section]
+You smiled, all gussied up, KNOW-ing your power
+In the blink of an eye,
+You bloomed like a wildflower
+Just a glance, and my world
+Turned upside down
+A country boy, lost in your
+Beauty, about to drown
+You knew you had me, plain as day
+And with a wink, you took
+
+My breath away
+
+[Outro] [Powerful Outro] [Fade Out] [Decrescendo] [Ambient Reverb] [Folk Strum] [Cinematic Atmosphere] [Acoustic Guitar] [String Section] [Natural Ambience]
+You sat there on that couch,
+Surrounded by them guys
+I couldn’t look away, you were
+Brighter than the skies
+I tried to say “Hi,” but
+My VOYSS didn’t show
+So I just whispered, pretending not to know
+Your LAF-ter echoed, and they soaked it in
+While I stood on the sidelines,
+
+Wishing I could win
+
+---
+
+## 4. Session Notes
+
+**Key:** G major
+**Tempo:** Moderate ~84 BPM
+**Time Signature:** 4/4
+**Feel:** Mournful, sparse, building to cathartic release
+**Style:** folk musical, acoustic country, storytelling pop, hip-hop, trap, spoken word
+
+---
+
+**Form Map:**
+
+| Section | Bars (approx.) | Notes |
+|---------|---------------|-------|
+| Intro | 4 | Soft vocal warm-up with acoustic guitar establishing tone |
+| Verse 1 | 8 | Sparse lead vocal, story-forward phrasing |
+| Chorus | 8 | Harmonies enter, wider dynamics |
+| Bridge | 4 | Textural shift and emotional lift |
+| Outro | 4 | Fade with ambient tail and final refrain energy |
+
+---
+
+**Instrument List:**
+- Acoustic Guitar: primary rhythm bed and song movement
+- Violin: melodic countermelodies and emotional color
+- Harmonica: melodic countermelodies and emotional color
+- Drum Machine: pulse, groove, and dynamic movement
+- Bass: pulse, groove, and dynamic movement
+
+---
+
+**Section-by-Section Notes:**
+
+**Intro:** Keep the warm-up intimate and centered, with the lead instrument setting the harmonic bed.
+**Verse 1:** Keep accompaniment sparse so the text stays intelligible; favor close, conversational vocal delivery.
+**Chorus:** Add harmonies, broaden the stereo image, and let the rhythm section support the emotional peak.
+**Bridge:** Shift texture with a held chord, solo response, or reduced percussion before returning to the main feel.
+**Outro:** Let the final phrase breathe, then fade with reverb or natural ambience.
+
+---
+
+**Production Notes:**
+Build the track around lyric clarity first, then add color in small layers. Keep the mix spacious enough for the vocal to carry the story, with the strongest dynamic lift reserved for the chorus or final refrain. Use the inferred style blend as a palette rather than a rigid genre box.
+
+---

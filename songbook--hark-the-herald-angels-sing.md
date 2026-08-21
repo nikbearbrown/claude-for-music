@@ -1,0 +1,54 @@
+# Hark! The herald angels sing,
+
+SONG:
+
+Hark! The herald angels sing,
+"Glory to the newborn King;
+Peace on earth, and mercy mild,
+God and sinners reconciled!"
+Joyful, all ye nations, rise,
+Join the triumph of the skies;
+With the angelic host proclaim,
+"Christ is born in Bethlehem!"
+Hark! The herald angels sing,
+"Glory to the newborn King!"
+
+Christ, by highest heaven adored,
+Christ, the everlasting Lord,
+Late in time behold Him come,
+Offspring of the Virgin's womb.
+Veiled in flesh the Godhead see,
+Hail the incarnate Deity,
+Pleased as man with man to dwell,
+Jesus, our Emmanuel.
+Hark! The herald angels sing,
+"Glory to the newborn King!"
+
+Hail the heaven-born Prince of Peace!
+Hail the Sun of Righteousness!
+Light and life to all He brings,
+Risen with healing in His wings.
+Mild He lays His glory by,
+Born that man no more may die,
+Born to raise the sons of earth,
+Born to give them second birth.
+Hark! The herald angels sing,
+"Glory to the newborn King!"
+
+Angels sing and nations bow,
+Christ the Lord is with us now.
+Let the earth in chorus raise
+Songs of joy and endless praise.
+Heaven’s King in humble birth,
+Brings salvation to the earth.
+Hark! The herald angels sing,
+"Glory to the newborn King!"
+
+Lord of all, with hearts we sing,
+Praise and worship to the King.
+Shepherds, wise men, all draw near,
+Heaven’s song we long to hear.
+Peace and grace forever flow,
+Christ has come to heal our woe.
+Hark! The herald angels sing,
+"Glory to the newborn King!"

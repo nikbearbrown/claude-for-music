@@ -1,0 +1,137 @@
+# There once was a servant, curious and bold,
+
+---
+
+## 1. Plain Lyrics (DistroKid)
+
+"The White Snake"
+
+Who tasted a dish the king kept controlled
+A bite of white snake, a
+Nibble, a chew
+And soon he heard whispers from animals too
+
+A duck with a ring stuck
+Deep in her belly
+Three gasping fish trapped in muck
+And in jelly
+An ant with a grievance, a
+Raven in need—
+Our servant helped all, both in
+Thought and deed
+
+Oh, one good turn deserves one more
+A gift comes knocking at your door
+Help a friend, you’ll see the day
+
+---
+
+## 2. Meta Tags Version
+
+[Intro] [Soft Intro] [Vulnerable Vocals] [Ambient Reverb] [Natural Ambience]
+Oooooo mmmmmm ahhhhh
+Do do do mmmmmm
+
+[Verse] [Storytelling Lyrics] [Chest Voice] [Stripped Back] [Finger Picking] [Blues Shuffle] [Anthemic Quality] [Electric Guitar] [Acoustic Guitar]
+"The White Snake"
+
+[Verse] [Storytelling Lyrics] [Chest Voice] [Stripped Back] [Finger Picking] [Blues Shuffle] [Building Intensity] [Electric Guitar] [Acoustic Guitar]
+Who tasted a dish the king kept controlled
+A bite of white snake, a
+Nibble, a chew
+And soon he heard whispers from animals too
+
+[Verse] [Storytelling Lyrics] [Chest Voice] [Stripped Back] [Finger Picking] [Blues Shuffle] [Triumphant Feeling] [Electric Guitar] [Acoustic Guitar]
+A duck with a ring stuck
+Deep in her belly
+Three gasping fish trapped in muck
+And in jelly
+An ant with a grievance, a
+Raven in need—
+Our servant helped all, both in
+Thought and deed
+
+[Outro] [Powerful Outro] [Fade Out] [Decrescendo] [Ambient Reverb] [Blues Shuffle] [Tense Underscore] [Electric Guitar] [Acoustic Guitar] [Natural Ambience]
+Oh, one good turn deserves one more
+A gift comes knocking at your door
+Help a friend, you’ll see the day
+
+---
+
+## 3. Meta Tags + 15% Respell Version
+
+[Intro] [Soft Intro] [Vulnerable Vocals] [Ambient Reverb] [Natural Ambience]
+Oooooo mmmmmm ahhhhh
+Do do do mmmmmm
+
+[Verse] [Storytelling Lyrics] [Chest Voice] [Stripped Back] [Finger Picking] [Blues Shuffle] [Anthemic Quality] [Electric Guitar] [Acoustic Guitar]
+"The White Snake"
+
+[Verse] [Storytelling Lyrics] [Chest Voice] [Stripped Back] [Finger Picking] [Blues Shuffle] [Building Intensity] [Electric Guitar] [Acoustic Guitar]
+Who tasted a dish the king kept controlled
+A bite of white snake, a
+Nibble, a chew
+And soon he heard whispers from animals too
+
+[Verse] [Storytelling Lyrics] [Chest Voice] [Stripped Back] [Finger Picking] [Blues Shuffle] [Triumphant Feeling] [Electric Guitar] [Acoustic Guitar]
+A duck with a ring stuck
+Deep in her belly
+Three GASP-ing fish trapped in muck
+And in jelly
+An ant with a grievance, a
+Raven in need—
+Our servant helped all, both in
+Thought and deed
+
+[Outro] [Powerful Outro] [Fade Out] [Decrescendo] [Ambient Reverb] [Blues Shuffle] [Tense Underscore] [Electric Guitar] [Acoustic Guitar] [Natural Ambience]
+Oh, one good turn deserves one more
+A gift comes KNOCK-ing at your door
+Help a friend, you’ll see the day
+
+---
+
+## 4. Session Notes
+
+**Key:** C major
+**Tempo:** Moderate ~84 BPM
+**Time Signature:** 4/4
+**Feel:** Warm, narrative, gradually building with a singable refrain
+**Style:** Chicago blues, gospel protest, soul, hip-hop, trap, spoken word
+
+---
+
+**Form Map:**
+
+| Section | Bars (approx.) | Notes |
+|---------|---------------|-------|
+| Intro | 4 | Soft vocal warm-up with electric guitar establishing tone |
+| Verse 1 | 8 | Sparse lead vocal, story-forward phrasing |
+| Chorus | 8 | Harmonies enter, wider dynamics |
+| Bridge | 4 | Textural shift and emotional lift |
+| Outro | 4 | Fade with ambient tail and final refrain energy |
+
+---
+
+**Instrument List:**
+- Electric Guitar: primary rhythm bed and song movement
+- Organ: harmonic foundation and transitional fills
+- Handclaps: pulse, groove, and dynamic movement
+- Drum Machine: pulse, groove, and dynamic movement
+- Bass: pulse, groove, and dynamic movement
+
+---
+
+**Section-by-Section Notes:**
+
+**Intro:** Keep the warm-up intimate and centered, with the lead instrument setting the harmonic bed.
+**Verse 1:** Keep accompaniment sparse so the text stays intelligible; favor close, conversational vocal delivery.
+**Chorus:** Add harmonies, broaden the stereo image, and let the rhythm section support the emotional peak.
+**Bridge:** Shift texture with a held chord, solo response, or reduced percussion before returning to the main feel.
+**Outro:** Let the final phrase breathe, then fade with reverb or natural ambience.
+
+---
+
+**Production Notes:**
+Build the track around lyric clarity first, then add color in small layers. Keep the mix spacious enough for the vocal to carry the story, with the strongest dynamic lift reserved for the chorus or final refrain. Use the inferred style blend as a palette rather than a rigid genre box.
+
+---
